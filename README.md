@@ -21,7 +21,7 @@ the first thing that i did was make a world list
 
 then after that I created a small script using mainanswer to put these random word's into a complete sentence
 
-![](https://cdn.discordapp.com/attachments/816084317812948994/831382096366010368/unknown.png)
+![](https://cdn.discordapp.com/attachments/816084317812948994/831382308938448927/unknown.png)
 
 and bam ur done pog xd uwu lol
 
