@@ -27,6 +27,6 @@ and bam ur done pog xd uwu lol
 
 # CONTACT ME 
 
-twitter : cuturthighs
-discord : J9C#0015
+twitter : cuturthighs || 
+discord : J9C#0015 ||
 email : yourmomisacutie@protonmail.com
