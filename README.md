@@ -29,4 +29,4 @@ and bam ur done pog xd uwu lol
 
 twitter : cuturthighs || 
 discord : J9C#0015 ||
-email : yourmomisacutie@protonmail.com
+email : yourmomisacutie@protonmail.com ||
